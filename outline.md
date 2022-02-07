@@ -7,15 +7,17 @@
 
 - Individual results may vary.
 
-
 - Just listen and read, it's such a circuitous route. 
 
 - Establishing your authority: price * quantity
+
 - Teaching what you know: add a wage floor 
 
 - Resources: Understand content marketing , content inc. 
 - Share what you know and share it freely
-The average content entrepreneur doesn't make money until how long? 
+
+- The average content entrepreneur doesn't make money until how long? 
+
 
 - How to strike out on your own ... 
     - Month 0: pick a topic and develop a lot of s***t about it
